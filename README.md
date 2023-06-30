@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ArmandoDaBeast
+- 👀 I’m interested in Gaming.
+- 🌱 I’m currently learning How to code.
+- 💞️ I’m looking to collaborate on making video games.
+- 📫 How to reach me add me.
